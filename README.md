@@ -8,7 +8,7 @@
 
 <br/>
 
-> #### Education period: June 2023 - July 2024
+> #### Education period: July 2023 - June 2024
 
 ---
 
